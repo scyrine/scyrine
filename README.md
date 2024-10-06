@@ -24,5 +24,4 @@
 <p align="center">
  <img width="300" src="https://64.media.tumblr.com/dd253c9933ad0cd9b0334cc0c7e0cbee/ff372627e89e0a4a-4d/s2048x3072/3745d59c25a55b3b2bcdc8433bcd4e5502dbffab.pnj" alt="Yummy Latinas">
 <p align="center">
-
-![https://github.com/6omin/6omin](https://komarev.com/ghpvc/?username=6omin) to see if yall actually opened this :3
+remake soom :P
