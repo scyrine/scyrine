@@ -1,7 +1,7 @@
 <p align="center">
 <img width="400" src="https://cdn.discordapp.com/attachments/1254316170815737867/1301794501085499422/Untitled83_20241101142619.png?ex=6725c61b&is=6724749b&hm=62f6850eb91cd7d579f4f0bb0c4abbe9746963c25ba7c95ec91f59af0aa2d3e8&" alt="Yummy Latinas">
 <p align="center"><p align="center">   
-<img width="500" src="https://s1.ezgif.com/tmp/ezgif-1-d35c36052b.gif" alt="Yummy Latinas">
+<img width="500" src="https://cdn.discordapp.com/attachments/1254316170815737867/1301817234657640490/yayyy.gif?ex=6725db47&is=672489c7&hm=f4d1ff5b079adb440a76c87388175c7072f9c06a71ab8233e49c34948ee37b1e&" alt="Yummy Latinas">
 <p align="center"> 
    <img width="300" src="https://64.media.tumblr.com/84e161a71c56df71ffe9cdc90e38f7d2/ff372627e89e0a4a-43/s1280x1920/de73ac853ff17f03ca69b3408e60572ab66bd9c4.pnj" alt="Sage">
 <p align="center">
