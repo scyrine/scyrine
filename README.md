@@ -4,18 +4,19 @@ One of my first ever drew mascots in my style (lie) kiddin' I draw for regiments
 
 please support sparkle and join their server. [gg/sparkle](https://discord.com/invite/sparkle)
 
-# Sparkles Mascot Mitsuki | I changed a lot
-<img src="https://media.discordapp.net/attachments/1266687573691072572/1356184369923883018/Untitled94_20250331163136.png?ex=67facdde&is=67f97c5e&hm=442059b5d7677eb6ba0487a5fac6505cd66f31613f4f94234a8ad516a6fa70c7&=&format=webp&quality=lossless" width="300" height="330"><img src="https://media.discordapp.net/attachments/1240667357144285255/1360279195653242890/Untitled6_20250411234226.png?ex=67fa8a39&is=67f938b9&hm=f1548965ba41249b0e412ecf42d0eeae7179657398501b4ac21bcf50a0146425&=&format=webp&quality=lossless&width=403&height=350" width="400" height="330"><img src="https://media.discordapp.net/attachments/792144761297436733/1321480228073246791/Untitled1_20241216050241_1.png?ex=67f922de&is=67f7d15e&hm=8b213d33c80e67cf4ab3720487f63f3e86748fd1615f7dace62c024fc8c60bce&=&format=webp&quality=lossless" width="250" height="250">
-<img src="https://media.discordapp.net/attachments/928143271828521050/1316054875691421717/SPOILER_Untitled1_20241207170951_1.png?ex=67fa7e1d&is=67f92c9d&hm=a4b6987985d2b08edeeadc9fc780826506712b1b1579faabc7e2a02669b220bd&=&format=webp&quality=lossless" width="390" height="330">
+# Sparkles Mascot Mitsuki | Adding more in the future
+<img src="https://media.discordapp.net/attachments/1266687573691072572/1360245116953956483/Untitled5_20250411212614.png?ex=682bdabc&is=682a893c&hm=1681a2868216100891d1457000d9c7033cacd1746f0facb2529d8bdb48bc3c1a&=&format=webp&quality=lossless" width="658" height="250">
+<img src="https://media.discordapp.net/attachments/1266687573691072572/1362785780673806700/Untitled73_20250418214253.png?ex=682bde69&is=682a8ce9&hm=c9605b118dcdb57d28e69a1fedd0659dee348080a839cc517f5232ab2e3ba6d0&=&format=webp&quality=lossless&width=1318&height=439" width="718" height="250">
 
-# Well obviously im going to add more (I am working on a new chibi Mitsuki)
+# I might add up some if I have free time actually
 and I might as well make an anime art of her probably sooner? well, if I am free then... I will!
 
 # ART DUMP
-Yes I am going to put all of my work on progress art here. Traditional will be soon since I am lazy to picture or whatever. I lost some of my arts because I broke my phone. Why? Project Sekai made me in tears and threw my phone ong
+I'm probably just going to put this here, also do not steal them. It's originally made by it's freaky owner aka me, plus it is my oc. I am adding more like, hsr, wuwa, whatever fandom I am in.
 
-<img src="https://media.discordapp.net/attachments/1356637001947943102/1356651285742358670/Screenshot_2025-03-30-13-12-00-95_84c9ef400ab248a2e4a3b31139e21163.jpg?ex=67f934f7&is=67f7e377&hm=06403ae3f111117fca683563ac37401c1d36b0c768d8a2848151d7b18d6021ad&=&format=webp&width=822&height=558" width="340" height="209">
+<img src="https://media.discordapp.net/attachments/1240667357144285255/1373897943358115922/Untitled87.png?ex=682c15ab&is=682ac42b&hm=544ff43ab0eabaed83c3f64c78e0ae733e086ef69cad1ed09571b1dbb11521c6&=&format=webp&quality=lossless" width="440" height="309">
 
-# Only one for now since thats all I have in my laptop LOL. Now time for my sarcastic group art (others will be added soon)
-![](https://media.discordapp.net/attachments/819813478541164574/1357047405308018849/Untitled65_20250401174909.png?ex=67f95462&is=67f802e2&hm=9e4370762ff79ce44462a362031183b82261aaa51acbe618a16c48d4bf7c9ecc&=&format=webp&quality=lossless)
+# My beloved sarcastic group art (I love you Aman, itsuki, Elite and Duh) my beloved partners in crime.
+<img src="https://media.discordapp.net/attachments/1361664093165195378/1373990854326226975/Untitled65_20250401174909.png?ex=682c6c33&is=682b1ab3&hm=1105d61955d7588bff700cdd58f8c248d49895de7728e14871048892ffbf0058&=&format=webp&quality=lossless" width="700" height="409">
+
 # Discord: 6omin
