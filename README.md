@@ -8,6 +8,6 @@ __I'm also an artist freak, but I will be showing my art in discord dms only to 
 
 
 # Discord: 6omin
-![](https://media.discordapp.net/attachments/1361664093165195378/1388861765634228368/image.png?ex=686285d0&is=68613450&hm=f09365e099bd4523c732eeb198ee2e6c5c4fcaadc6f69d31945fcdf7af59f0a8&=&format=webp&quality=lossless)
+![](https://cdn.discordapp.com/attachments/1361664093165195378/1388861765634228368/image.png?ex=6869c610&is=68687490&hm=456c790814e941cbe6542bdf1dea678e4cf29c3581853904f20fb6747a2cc9f6)
 
 __november is my nutting month__ is my discord display name.
